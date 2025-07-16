@@ -1,0 +1,2 @@
+# vazifalar-boshqaruvi
+Dastur
